@@ -1,2 +1,0 @@
-よろしくね
-hoohohoasldkfjlaksjfl
